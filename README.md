@@ -16,7 +16,6 @@ I am currently in my third year of studying Information Systems Engineering. As 
 💬 Ask me anything – I’m always happy to help or share what I know!
 
 Outside of tech:
-🎥 I enjoy streaming on Twitch,
 🎮 Playing videogames is one of my favorite hobbies,
 🎧 I also love listening to music to relax and focus.
 
