@@ -20,6 +20,7 @@ Outside of tech:
 🎧 I also love listening to music to relax and focus.
 
 📫 Reach out to me at: julicenteno898@gmail.com
+📫 Linkedin: https://www.linkedin.com/in/julianocenteno/
 <br>
 
 ## My Skills Include
